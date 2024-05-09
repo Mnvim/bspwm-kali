@@ -16,7 +16,7 @@ El wallpaper de nuestro queridisimo s4vitar.
 
 Esta no esta incluida en el scripts
 
-UNA MENCION A ESPECIAL A Mr. xJackSx, por su gran aporte
+UNA MENCION ESPECIAL A Mr. xJackSx, por su gran aporte
 
 UNA MENCION HONORIFICA A Mr. Pr1ngl3s, por su gran colaboración.
 
